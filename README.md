@@ -1,5 +1,6 @@
 ## Hi there 👋
 
+I hope that in the future, I will not turn into a miserable person and I can still be here.
 <!--
 **laophoimantin/laophoimantin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
