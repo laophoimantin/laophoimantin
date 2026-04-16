@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-I hope that in the future, I will not turn into a miserable person and I can still be here.
+I hope to be employed one day.
 <!--
 **laophoimantin/laophoimantin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
